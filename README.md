@@ -1,5 +1,4 @@
-# Send this to your Love
-# Pretty sure he/she won't deny It 😁
+# Send this to your Love. Pretty sure he/she won't deny It 😁
 
 https://engarthurfranca.github.io/valentine-proposal/
 

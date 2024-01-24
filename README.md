@@ -3,7 +3,8 @@ Pretty sure he/she won't deny It 😁
 
 https://engarthurfranca.github.io/valentine-proposal/
 
-Wanna help in how to use It?
+
+Wanna help in how to install and use It?
 Just follow the turorial below after clone this repository
 
 ## Project setup
